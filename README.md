@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cenix102
+- 👀 I’m interested in Open Source project that can help the companies to grow! 
+- 🌱 I’m currently learning LPIC-1
+- 💞️ I’m available on Upwork: https://www.upwork.com/freelancers/~01103509f5a8c042d5
+- 📫 If you want to reach out, please leave a message.
